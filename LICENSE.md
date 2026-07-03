@@ -1,4 +1,4 @@
-#  
+#  Experience be a lucky block like never before with be a lucky block Script premium, the #1 Script. Includes esp and teleport for unbeatable
 
 
 
